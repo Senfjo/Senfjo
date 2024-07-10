@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Jonathan Senf
+- 👀 I’m interested in improving my coding skills, sports and my family and friends
+- 📫 How to reach me jonathansenf97@gmail.com
