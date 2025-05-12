@@ -1,1 +1,1 @@
-# 👋 Hi, I'm Jonathan Senf
+# 👋 Hi, I'm Jonathan
